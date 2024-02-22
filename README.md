@@ -1,5 +1,5 @@
 # 3trimestre
 # João de Faria Pioli
-# 1ºB
-# Pedro H., Erick F., Izabela Vitoria.
+# 3ºB
+# Erick Fernando da Fonseca Piller
 # Camisetas com estampas automobilisticas.
