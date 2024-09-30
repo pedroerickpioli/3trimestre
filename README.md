@@ -1,4 +1,4 @@
-# 3trimestre
+# 3°trimestre
 # João de Faria Pioli
 # 3ºB
 # Erick Fernando da Fonseca Piller n°11 
